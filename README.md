@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @0xjawz
+- 👀 I’m interested in pasting
+- 🌱 I’m currently learning how to paste
+- 💞️ I’m looking to collaborate on pasting pastes
+- 📫 How to reach me jawz#7777 (informal paster)
